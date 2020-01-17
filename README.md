@@ -1,3 +1,3 @@
 # Emilio-Tognelli-is-very-racist
-![bruh](shortillio.png "RAcisT")
+![bruh](smallio.png "RAcisT")
 ### Emilio - "I hate minorities"
