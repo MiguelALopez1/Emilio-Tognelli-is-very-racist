@@ -1,3 +1,4 @@
-# Emilio-Tognelli-is-very-racist
-![bruh](smallio.png "RAcisT")
-### Emilio - "I hate minorities"
+# Anas is fat lol
+- he is dum
+- he fat
+- he lame
